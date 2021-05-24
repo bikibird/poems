@@ -4,12 +4,12 @@ Earl, the squirrel, was deep in thought,
 Thinking of things he hadn't got.
 A nut, a friend, and bright red wings,
 An angry heart pined o'er these things.
-  This was his quarrel,
+  Such was his quarrel,
   The negative churl!
 
 Then came a young girl, far from home,
 From icy north, where badgers roam--
-A friend stocked with peanuts galore!
+A friend holding peanuts galore!
 When Earl ate them, she gave him more.
   But wings, poor Jenny,
   She hadn't any!
