@@ -2,7 +2,7 @@
 
 Earl, the squirrel, was deep in thought,
 Considering things that he hadn't got.
-A peanut, a friend, aand bright red wings,
+A peanut, a friend, and bright red wings,
 These were some of the various things.
   This Earl, the squirrel,
   A negative churl!
