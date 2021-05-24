@@ -9,16 +9,16 @@ These were some of the various things.
 
 Then came a young girl, far from home,
 From icy north, where badgers roam--
-A sweet friend, with peanuts galore;
+A friend, and with peanuts galore!
 When Earl ate them, she gave him more.
   But wings, poor Jenny,
-  She had not any!
+  She hadn't any!
   
 Was Earl angry and did he pout?
 Well, not long, reasoning no doubt:
 No peanuts, no revels: no sense;
-Hungry creature, take not offense.
+Hungry creature, take not offense!
   Says Earl, the squirrel,
-  You're quite a nice girl!
+  You're quite a nice girl.
   
   
