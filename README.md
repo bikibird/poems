@@ -9,7 +9,7 @@ An angry heart pined o'er these things.
 
 Then a young lass ventured from home,
 From icy north, where badgers roam--
-A friend holding peanuts galore!
+Friend with peanuts, peanuts galore!
 When Earl ate them, she gave him more.
   But wings, poor Jenny,
   She hadn't any!
