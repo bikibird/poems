@@ -7,7 +7,7 @@ An angry heart pined o'er these things.
   Such was his quarrel,
   The negative churl!
 
-Then came a young girl, far from home,
+Then a young lass ventured from home,
 From icy north, where badgers roam--
 A friend holding peanuts galore!
 When Earl ate them, she gave him more.
