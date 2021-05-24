@@ -15,10 +15,10 @@ When Earl ate them, she gave him more.
   She hadn't any!
   
 Was Earl still angry? Did he pout?
-Well, not long, reasoning no doubt:
+Well, not long, reasoning, no doubt:
 No peanuts, no revels: no sense;
 Hungry creature, take not offense!
-  Says Earl, the squirrel,
+  Said Earl, the squirrel,
   You're quite a nice girl.
   
   
