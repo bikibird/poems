@@ -17,7 +17,7 @@ When Earl ate them, she gave him more.
 Was Earl still angry? Did he pout?
 Well, not long, reasoning, no doubt:
 No peanuts, no revels: no sense;
-Hungry creature, take not offense!
+Hungry creatures take no offense.
   Said Earl, the squirrel,
   You're quite a nice girl.
   
